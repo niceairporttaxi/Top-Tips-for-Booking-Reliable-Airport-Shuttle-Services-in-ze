@@ -30,7 +30,7 @@ A reliable airport transfer Èze ensures:
 
 •	Door-to-door service, saving time and stress
 
-That’s why travelers increasingly choose dedicated airport taxi services in Èze like Nice-Airport Taxi — known for affordable rates starting at just €4.00, reliable schedules, and seamless service.
+That’s why travelers increasingly choose dedicated [airport taxi services in Èze](https://www.nice-airport.taxi/destinations-1/nice-airport-to-%C3%A8ze-from-%E2%82%AC4.00) like Nice-Airport Taxi — known for affordable rates starting at just €4.00, reliable schedules, and seamless service.
 
 # Top Tips for Booking Reliable Airport Shuttle Services in Èze
 
